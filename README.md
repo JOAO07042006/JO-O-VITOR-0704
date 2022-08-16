@@ -1,0 +1,5 @@
+- 👋 meu nome joão vitor de oliveira salvador
+- 👀 I’m interested in  aprender mais com a plataforma 
+- 🌱 I’m currently learning ... como mecher no github  
+- 👍 aprendendo a mecher com o github
+- 📫 How to reach me ...joao.salvador@escola.pr.gov.br
